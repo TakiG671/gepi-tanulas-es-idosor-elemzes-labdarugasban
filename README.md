@@ -1,0 +1,1 @@
+# gepi-tanulas-es-idosor-elemzes-labdarugasban
